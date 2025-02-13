@@ -1,7 +1,7 @@
 # 👋 Hi, I'm **Nikhil Sharma**  
 
 ### 🚀 About Me  
-I’m a **17-year-old 11th grader** with a passion for **computers** and **astrophysics**. My journey revolves around the intersection of technology and creativity, and I’m on a mission to make an impact through innovative solutions. As an introvert, I focus deeply on my projects and ideas, believing in quality over quantity when it comes to connections.  
+I’m a **18-year-old 11th grader** with a passion for **computers** and **astrophysics**. My journey revolves around the intersection of technology and creativity, and I’m on a mission to make an impact through innovative solutions. As an introvert, I focus deeply on my projects and ideas, believing in quality over quantity when it comes to connections.  
 
 ### 🌟 My Interests  
 - 🌌 Exploring the mysteries of the **universe** and dreaming of contributing to advancements in **space exploration**.  
